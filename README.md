@@ -28,3 +28,4 @@ The speed of the tool depends on your internet
 ○ تحذير تقدر تستخدمها للخير و للشر الأمر راجع عليك ❗
 Dev by @lfillaz 
 #2023-10-9
+The full tool is here https://t.me/laz_dev/20
